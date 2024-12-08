@@ -8,7 +8,7 @@
   <br>
 - 📫 You can reach me with my work mail which I will be adding later on
 - 😄 Pronouns: she/her OwO
-- ⚡ Fun fact: I like cutesy stuff and dark stuff OwO. Probably not a fun fact XD
+- ⚡ Fun fact: fish
 
 <!---
 YxaBlue/YxaBlue is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
